@@ -104,7 +104,7 @@ He took his hand from the boy's neck and pulled the little wrist towards him, pu
 
 Visions of the future intoxicated his mind. A beautiful girl in the passenger seat of his first car, a view of the city from the lover's hilltop; he, a famous hero with bulging muscles, saving beautiful women from criminal intentions and taking them to the top of a New York City skyscraper, to make love under the glowing sky; and Cindy, her smile, her kiss, the penis of a badger in the pocket of his jeans, stiff and powerful like the sword of an ancient king.
 
-“Yes, my boy. Yes. You feel its power. That is the power of a love god. Not in these silly words on long-dead paper, but in the breath of burning passion, issued from your throat in the moments of ecstasy when you are wrapped by the arms of a beautiful woman. You cannot build the fire of passion with your ideas of love, my boy. It is with your breath that you win a woman's heart.”
+“Yes, my boy. Yes. You feel its power. That is the power of a love god. Not in these silly words on long-dead paper, but in the breath of burning passion, issued from your throat in the moments of ecstasy when you are wrapped by the arms of a beautiful woman. You cannot build the fire of passion with your ideas of love, my boy. It is with passion that you win a woman's heart.”
 
 They sat for a long time. It could have been an hour, or a day, or seven weeks. Jimmy held the badger's ancient penis carefully in his hands.
 
