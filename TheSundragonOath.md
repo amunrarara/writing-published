@@ -1,3 +1,4 @@
+
 *We are after a set of skills that aren’t going to only help us write awesome code, we are developing skills that help us become better humans.*
 
 Inspired by *The Programmer's Oath* by Robert Martin (Uncle Bob): 
