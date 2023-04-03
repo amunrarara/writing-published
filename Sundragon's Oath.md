@@ -1,6 +1,8 @@
 *We are after a set of skills that aren’t going to only help us write awesome code, we are developing skills that help us become better humans.*
 
-Inspired by *The Programmer's Oath* by Robert Martin (Uncle Bob): https://blog.cleancoder.com/uncle-bob/2015/11/18/TheProgrammersOath.html
+Inspired by *The Programmer's Oath* by Robert Martin (Uncle Bob): 
+
+[https://blog.cleancoder.com/uncle-bob/2015/11/18/TheProgrammersOath.html](https://blog.cleancoder.com/uncle-bob/2015/11/18/TheProgrammersOath.html)
 
 ### Sundragon's Oath
 

@@ -1,4 +1,6 @@
-*This essay was my first published work. When I was 20, I had the exciting role of assistant to a writer's coach, and this was my introduction piece for display on her blog. See the original post here: https://artofstorytelling.wordpress.com/2012/10/22/walking-in-the-worlds-of-my-fantasy*
+*This essay was my first published work. When I was 20, I had the exciting role of assistant to a writer's coach, and this was my introduction piece for display on her blog. See the original post here:*
+
+[https://artofstorytelling.wordpress.com/2012/10/22/walking-in-the-worlds-of-my-fantasy](https://artofstorytelling.wordpress.com/2012/10/22/walking-in-the-worlds-of-my-fantasy)
 
 I was six years old, lying on my mother’s tummy on the living room couch of our SE Portland duplex. The setting sun lit the curtains bright orange. The television in the corner stood dusty and untouched. We listened to the narrator’s slightly distorted voice through a cheap plastic boombox, for my mother cannot see and has never seen me, thus the stories we shared were from the voice of storytellers and not the written pages of books.
 
