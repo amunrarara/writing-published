@@ -1,4 +1,5 @@
 Jimmy sat in his bedroom, stooping over his desk, trembling with a pencil in his hand. Twenty or so balls of crushed paper littered the messy floor, three on his dirty bed. On the desk, being scrutinized by his terrified eyes, was a love letter.  
+
 His shaky hands made fussy lines despite how many times he tried to make the letters perfect. The note read:
 
 Cindy  
@@ -46,12 +47,11 @@ shook him. Jimmy felt a bruise begin to form. “Look at him. Reminds me so much
 The entryway grew quiet. The moment stalled. Jimmy's mother broke the tension. “Well, let  
 me show you where you're staying. Gran and Pop, you'll be upstairs at the end of the hall. Rome, I hope it's alright if you sleep on the couch, we don't have any more bedrooms.”
 
-“I thought I could just bunk up with you, sis.”
+“A couch? Well, your couch is better than that pile of shit I call a bed."
 
-The room grew colder; maybe the wind was still swirling from the door being left open. His  
-mother recovered the moment. “No, no. My bed is off limits. There's blankets in the living room next to the couch. It folds out into a really comfortable hide-away. Come on, I'll show you two where your room is. Jimmy, will you grab Pop's bags?”
+Jimmy's mother contined. "There's blankets tucked in the space next to the couch, and it folds out into a really comfortable hide-away." She turned back to the elders. "Come on, I'll show you two where your room is. Jimmy, will you grab Pop's bags?”
 
-They dragged the suitcases up the steps and down the hallway. The wheels loudly scraped against the iron floor-waffle that emitted heat during cold winter nights. Jimmy set Pop's bags outside the bedroom door and then retreated back to his room.
+They dragged the suitcases up the steps and down the hallway. The wheels loudly scraped against the iron floor-waffle that kept them warm during cold winter nights. Jimmy set Pop's bags outside the bedroom door, then retreated back to his room.
 
 He ignored his family's voices, despite their directionless words coming through the little crack  
 in his door. He was again stooped over his work, a Mozart or a Rembrandt, the future pulling down on his shoulders, begging him to die in his graven masterpiece.
