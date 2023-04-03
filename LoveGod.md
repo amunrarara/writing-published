@@ -33,8 +33,6 @@ His grandfather came and gave him a hug. His bones were so close to his skin, wi
 
 From the top zipper-pocket of his leather suitcase, Pop-Pop pulled out a shiny piece of folded cardstock with the number 12 written in bright gold. Jimmy opened the card. Nothing fell out.
 
-Acea Spades Black 2019
-
 “Thanks, Pop-Pop.”
 
 “Your Gran-Gran has not stopped talking about you, all the way over. Oh, he's probably so big, now. Oh, I wonder how his school is going. Oh, we need to invite him to our home over winter and spoil him rotten.”
@@ -64,8 +62,6 @@ Heavy feet plodded up the stairs. They stopped in front of Jimmy's door. Fat knu
 
 The doorknob turned. Jimmy sprang up, knocking his chair backward. He started kicking the  
 paper wads under the bed, but it was too late. The door was open, and there stood his uncle. Jimmy turned his back to the invader.
-
-Acea Spades Black 2019
 
 “What, Uncle Roman?” His voice cracked.
 
@@ -105,8 +101,6 @@ Uncle Roman put his massive hands over Jimmy's ears and twisted the boy's small 
 “I have been a very lucky man. I am fantastic when it comes to seducing women. You are a  
 very lucky boy, to have an uncle like me, and a father like yours was. Let me show you something.”
 
-Acea Spades Black 2019
-
 He reached into the pocket that was buried under his enormous legs. He clasped something in  
 his hands, and brought the closed fist under Jimmy's nose with the dirty fingernails pointed upward. Slowly, he opened the fleshy cage. In it, he held something smooth, like a tumbled sea shell, skinny and shaped like the finger of a newborn baby.
 
@@ -131,8 +125,6 @@ fossil into his nephew's palm and closing a hairy fist around it. Jimmy's hair s
 
 Visions of the future intoxicated his mind. A beautiful girl in the passenger seat of his first car,  
 a view of the city from the lover's hilltop; he, a famous hero with bulging muscles, saving beautiful women from criminal intentions and taking them to the top of a New York City skyscraper, to make love under the glowing sky; and Cindy, her smile, her kiss, the penis of a badger in the pocket of his
-
-Acea Spades Black 2019
 
 jeans, stiff and powerful like the sword of an ancient king.
 
